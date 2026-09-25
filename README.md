@@ -1,1 +1,1 @@
-nigga
+hola soc en marc sagrera
